@@ -1,6 +1,6 @@
 ---
 layout: post
-title: "My vote is not your property"
+title: "TMy vote is not your property"
 date: 2026-06-06
 ---
 
