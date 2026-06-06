@@ -2,55 +2,133 @@
 layout: post
 title: "My vote is not your property"
 date: 2026-06-06
-description: "From G.W. Leitner’s 19th-century accounts to the current electoral engineering, the structural logic of governing Gilgit-Baltistan remains entirely unchanged."
 ---
 
-The Hungarian-British orientalist, Gottlieb Wilhelm Leitner (G.W. Leitner), who came to Gilgit in the second half of the nineteenth century as an agent of the British Empire, left behind something far more valuable than a conventional travelogue. In his extensive works on the Dards of Gilgit and Baltistan, Leitner recorded an old legend regarding the legitimate rule of the region. It was mythological, yet in its own way, it was fundamentally more truthful regarding the mechanics of power than anything the Election Commission of Pakistan has ever published. 
+The Hungarian
+British orientalist, Gottlieb Wilhelm Leitner (G.W. Leitner), who came to
+Gilgit in the second half of the nineteenth century as agent of the British
+empire, has left something better than a travelogue. Leitner mentioned an old
+story of the legitimate rule of Dards of Gilgit in his works on Dards of Gilgit
+and Baltistan.It was mythological and in its own way more truthful regarding
+power than anything the Election Commission of Pakistan has ever published. According
+to the legend, Azru Shemsher (son of Shemsher), the youngest of three fairy
+brothers, was sent to save the people of Gilgit from Shiribadatt, a tyrant
+cannibal. He was not endorsed by a party or a returning officer as an eligible
+candidate to be elected. It was tested when he fired an arrow across a mountain
+and hit a wild goat! On the spot the astonished peasants called him their
+leader. He destroyed the tyrant with fire. He was acclamated as king. From
+God's choice to people's approval to official proclamation, it's all predicated
+on something radical: People are in the process. Their amazement, their
+recognition, their enthusiasm is their authority. After the result was announced,
+nobody came from Rawalpindi, Lahore or Sindh to declare the result. During
+Maharajas' rule, they sent people to rule the region as their pawns. By
+mid-nineteenth century, the choice of rulers in Gilgit was no longer a matter
+of divine approval or council of its community. For Srinagar, it was more of a
+logistical issue. The Maharaja of Kashmir set up his own Thanadars and
+Zilladars to take care of the land. He held the legitimate descendants of Dard
+as hostages in Srinagar not because he was cruel, but for its own sake. Should
+he require a governor in a disputed territory he supplied the troops and
+equipped oneself with the member of the family who was most likely to stay
+"subject to no one but the Maharaja" as Leitner himself put it. The
+template was now complete. The names would change. The Maharaja would become
+the British Resident, the British Resident would become the Political Agent of
+Pakistan, the Political Agent would become the Prime Minister empowered by the
+GB Order 2018 to function as the ultimate sovereign of the region. But the
+arrangement, the logic of an external hand placing a local face in position and
+calling it governance, has not changed at all.
 
-According to the legend, Azru Shemsher—the youngest of three fairy brothers—was sent to save the people of Gilgit from Shiribadatt, a tyrant cannibal. He was not endorsed by a political party, nor was he cleared by a returning officer as an eligible candidate. His legitimacy was tested when he fired an arrow across a mountain and struck a wild goat. On the spot, the astonished peasants acclaimed him as their leader. He destroyed the tyrant with fire and was proclaimed king. 
+The election of
+2025 is simply the latest appointment which is being covered in a ballot paper.
+The playing field for the political actors is selectively leveled for the
+favorites. This is not an unusual phenomenon in elections as it has always been
+the case. In the legislative assembly elections of 2009, 2015, and 2020, many
+political candidates were jailed and some added on to the list of missing
+persons. The allegations of rigging have always remained there. But this year,
+the scale at which the un-leveling is occurring is unprecedented. The Leader of
+Awami Workers Party, Baba Jaan and the candidate, Fida Muhammad Nashad from
+Pakistan Peoples Party have been disqualified on the alleged basis of
+"concealing facts." The Pakistan Tehreek Insaaf has been deprived of
+any political space. The party's regional President and former Chief Minister
+Khalid Khursheed, has been expelled from the region. The party's central leaders,
+Asad Qaisar, Junaid Akbar, and many others, are not even allowed to enter the
+region due to the un-notified orders. In the midst of all this chaos, the
+banned Tehreek Labaik Pakistan, has fielded their candidate. Yes, they are
+allowed to contest the elections!
 
-From divine choice to public approval to official proclamation, the entire sequence was predicated on something radical: *the people were active participants in the process.* Their amazement, recognition, and collective enthusiasm constituted the sole source of political authority. Once the result was established, no external arbiter arrived from Rawalpindi, Lahore, or Sindh to declare the official outcome. 
+The Chief
+Election Commissioner of Gilgit Baltistan asserted in his press conference that
+all political parties have violated the rules of the Election Code of Conduct
+and as a result they are banning all the central political leaders, federal ministers,
+and even Prime Minister from visiting the region and engaging in any political
+activity. A day after this statement, the Federal Minister and Pakistan Muslim
+League Nawaz's central member, Khawaja Saad Rafique and Chairman Pakistan
+Peoples Party Bilawal Bhutto, Asifa Bhutto, and Retd. Captain Safdar arrived in
+Gilgit Baltistan for political campaigning. Making a positive sense of all this
+democratic mockery is itself an irrational act. As the elections in Gilgit
+Baltistan are not held with the general elections which is the case with the
+four provinces, the favorites become very predictable. The rule of thumb is
+that whichever party holds the central (federal) government, automatically gets
+to govern the Gilgit Baltistan, as a free reward. Although, the Gilgit
+Baltistan Order 2018 directly gives the ultimate power to the Prime Minister of
+the country to decide and head the Legislative Assembly, the mirage of
+independent governance is sold to make the people of the region engaged in the
+democratic theatre. The Queen of Britain used to hold the ultimate sovereign
+powers in all of its colonies. Similarly the Federal Government, especially PM,
+is the Queen/King of this region. After the Eighteenth Amendment (Okay sure, it
+will be repealed soon but listen!), the provinces are given the independent
+authority on matters of legislation (subject to exceptions), and governance.
+After being federally administered, the region is not even given the legal
+status of Federally Administered region, let alone that of a province.
 
-### The Evolution of the External Hand
+Those who are
+allowed to campaign freely are doing it in the normal way, the unfortunate one.
+The elections in GB have been preceded by the illusionary promises (of
+Provincial Status), regional development, and the blatant claims of making the
+region "Switzerland and even Lahore" for the last four Legislative
+Assembly elections. The same script of political campaigning is followed in
+every sort of elections around the world. No political party provides any
+manifesto, let alone copy paste the same that is given at national level. The
+candidates poison the political sphere by using derogatory language against
+their opponents and their family members. The contents of their political
+speeches cannot be penned down due to the filth they contain. It has become a
+spectacle, a place to show how much hatred you can portray against the
+candidates (and yes, their family members). The voters know that the part of
+Lahore these candidates are promising to build is not Gulberg, DHA, or Lake
+View City, but the neglected and true Lahore that is what is now referred to as
+the old Lahore; where citizens are deprived of their basic needs, access to
+education and even if they by chance get the grounding part of Maslow's pyramid
+of needs, they die off of the harsh heat of the ruthless summer as they cannot
+afford to pay the bills to let the cooling machine keep moving its wings to
+prevent their breaths from getting stopped.
 
-During the rule of the Maharajas, external actors began treating the region as a logistical chess piece, deploying proxies to rule by decree. By the mid-nineteenth century, the selection of rulers in Gilgit was no longer a matter of community consensus or indigenous legitimacy. For Srinagar, it transformed entirely into an administrative and logistical issue. The Maharaja of Kashmir established his own network of *Thanadars* and *Zilladars* to manage the territory. He held the legitimate descendants of the Dardic rulers as hostages in Srinagar—not out of arbitrary cruelty, but for systemic control. Should he require a governor in a disputed territory, he supplied the troops and installed whichever family member was most likely to remain, as Leitner precisely observed, *"subject to no one but the Maharaja."*
+In spite of
+witnessing this political theater, most of the voters always remain optimistic
+for a change. They partake in the political gatherings of the candidates,
+engage in debates with the voters of the opposing candidates, and introspect to
+'choose' a suitable candidate. The candidates go to the homes of their
+potential and swing voters to offer them the rights and the money. The voters
+are blindsided by the latter as they know they can never get the rights due to
+the most illogical reason that has been adopted/memorized by the policy
+analysts of the Think Tanks, that the political status of the region should be
+maintained as undecided till the plebiscite on Kashmir issue is conducted by
+the United Nations (Laughter all around). The myth of the plebiscite has long
+been shattered and the final nail in the coffin was put by Indian Prime
+Minister Modi by changing the status of Indian Occupied Kashmir. So, many take
+the money. Few choose to remain liberated and hungry as consequences of
+upholding their principles.
 
-The template was now complete. Over the subsequent decades, the names would change, but the underlying structure remained static:
-* The Maharaja transformed into the British Resident.
-* The British Resident became the Political Agent of Pakistan.
-* The Political Agent evolved into the Prime Minister, empowered by the **Gilgit-Baltistan Order 2018** to function as the ultimate sovereign of the region.
+Political
+participation is the only lever the people of Gilgit Baltistan actually hold,
+which is precisely why so much effort goes into making sure they cannot pull it
+properly. The repulsion being engineered is not accidental. A citizen who stops
+voting is a citizen who stops being inconvenient. So no, the answer is not to
+stay home. Not yet. The solution is to be present in such numbers that the
+theft will be embarrassing, easily seen, and costly. Make the rigging
+challenging. Make it a challenge. The machinery proved to be a blessing for PTI
+in 2020. It is now against them. The machine is not loyal to anyone, it has a
+set of instructions. If you know that, it will make it easier to understand. 
 
-The core arrangement—the underlying logic of an external hand placing a local face in an office and labeling it governance—has not changed at all. 
-
-### Electoral Engineering and the Levelling of the Field
-
-The current election cycle is simply the latest administrative appointment obscured by a ballot paper. The political playing field is selectively leveled for favored actors—a historical norm in the region's legislative assemblies. In the elections of 2009, 2015, and 2020, candidates faced imprisonment or were added to the lists of enforced disappearances, while allegations of institutional rigging remained constant. However, the scale of contemporary manipulation is entirely unprecedented. 
-
-The leader of the Awami Workers Party, Baba Jan, alongside Pakistan Peoples Party candidate Fida Muhammad Nashad, face disqualification on the alleged basis of "concealing facts." Concurrently, Pakistan Tehreek-e-Insaf has been methodically deprived of political space. The party's regional President and former Chief Minister, Khalid Khursheed, has been forcibly expelled from the territory, while central leaders like Asad Qaiser and Junaid Akbar are barred from entry through un-notified administrative orders. In the midst of this engineered chaos, the banned Tehreek-e-Labbaik Pakistan has been permitted to freely field candidates and contest the election.
-Making positive sense of this democratic mockery is an exercise in irrationality. Because elections in Gilgit-Baltistan do not align chronologically with the general elections of the four provinces, the outcomes are highly predictable. The historical rule of thumb dictates that whichever political party captures the federal government in Islamabad automatically receives the governance of Gilgit-Baltistan as a free reward. 
-
-While the Gilgit-Baltistan Order 2018 explicitly concentrates ultimate decision-making power in the office of the Federal Prime Minister, the mirage of independent governance is systematically sold to keep the local population engaged in the theatre. Just as the British Crown once retained absolute sovereignty over its colonies, the Federal Government—specifically the Prime Minister—acts as the modern sovereign of this region. Following the Eighteenth Amendment, Pakistan's provinces were granted autonomous legislative and administrative authority. Gilgit-Baltistan, despite being federally administered, is denied even the basic constitutional status of a Federally Administered region, let alone that of a full province.
-
-### The Content of the Campaign
-
-Those permitted to campaign freely deploy a familiar, exhausted script. For four consecutive legislative cycles, campaigns have been preceded by illusionary promises of provincial status, grand claims of regional development, and bizarre assertions that the region will be transformed into "Switzerland or Lahore." 
-
-No political party provides an independent, localized manifesto; instead, they copy and paste national-level templates entirely disconnected from regional realities. Candidates systematically degrade the political sphere, utilizing derogatory language targeted not just at opponents, but at their family members. The sheer vulgarity of these political speeches prevents them from being recorded in print. It has devolved into a public spectacle designed to measure how much visceral hatred a candidate can project. 
-
-The voters understand the reality of these promises. The portion of Lahore these candidates promise to replicate is not the affluent infrastructure of Gulberg, DHA, or Lake View City. It is the neglected, historical core of old Lahore—where citizens are systematically deprived of basic necessities, health infrastructure, and quality education. Even if these citizens manage to secure the foundational, physiological layers of Maslow’s pyramid of needs, they remain vulnerable to the brutal summer heat, unable to afford the electricity tariffs required to keep cooling machines running.
-
-### The Myth of the Plebiscite and the Only Lever Left
-
-In spite of witnessing this recurring political theater, a significant portion of the electorate remains determinedly optimistic. They attend political gatherings, engage in localized debates, and attempt to introspect to choose a viable candidate. Candidates routinely visit the homes of potential swing voters, offering direct financial incentives in exchange for compliance. Many voters accept the money, fully aware that substantive constitutional rights will never be delivered under the current framework. 
-
-The standard rationale memorized and repeated by institutional policy analysts in mainstream think tanks is that the political status of Gilgit-Baltistan must remain permanently undecided until a United Nations plebiscite is conducted on the broader Kashmir issue. This structural narrative has long been obsolete; its finality was demonstrated when Indian Prime Minister Narendra Modi unilaterally revoked the special status of Indian-Administered Jammu and Kashmir. Thus, under the weight of economic reality, many take the cash. Only a rare few choose to remain liberated, principles intact, accepting hunger as the price of autonomy.
-
-Political participation remains the only structural lever the people of Gilgit-Baltistan actually possess—which is precisely why so much institutional effort is spent ensuring they cannot pull it effectively. The political repulsion currently being engineered is not accidental. A citizen who drops out of the political process and stops voting is a citizen who ceases to be structurally inconvenient to the state. 
-
-Therefore, the solution is not to stay home. The objective must be to show up at the polling stations in such overwhelming numbers that the subversion of the vote becomes mathematically embarrassing, visually obvious, and systemically costly. Make the rigging difficult. Treat it as an operational challenge. 
-
-The electoral machinery that proved to be an administrative blessing for PTI in 2020 has now been turned against them. The machine itself is not loyal to any individual, faction, or political ideology; it simply executes a predetermined set of operational instructions. Understanding that logic strips away the emotional illusion of the process.
-
-As for my own vote, I genuinely do not know where it will land. Perhaps I will only discover the destination of my ballot after the election is concluded—when the official reports reveal which candidate the presiding officer decided I voted for. 
-
-***
+As for whom I
+am casting my vote, I genuinely do not know yet. Perhaps I will find out after
+the elections, when I discover which candidate the presiding officer decided I
+voted for. Would I?
