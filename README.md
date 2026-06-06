@@ -1,1 +1,14 @@
-# sarankhan-writes.github.io
+---
+layout: default
+title: Home
+---
+
+# Saranullah Khan
+### Independent Legal & Political Commentary
+
+I write.
+---
+
+## Published Essays
+
+*   [The Hungarian British orientalist, Gottlieb Wilhelm Leitner](./my-vote-is-not-your-property/) (Published: June 06, 2026)
